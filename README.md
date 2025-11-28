@@ -1,1 +1,2 @@
-# M-todos-de-todas-las-t-cnicas-de-programaci-n-
+# M-todos-de-todas-las-t-cnicas-de-programación-
+Se trata aquí de identificar otros países, que revelen niveles y tendencias de demanda, que permita situarlos en una curva de tendencia general, que a su vez presenten condiciones de comparabilidad, preferentemente en temas tales como nivel y distribución del ingreso, precio, capacidad de producción existente y otros factores dados como clima, hábitos, crecimiento demográfico, etc. 
